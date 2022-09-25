@@ -1,0 +1,1 @@
+# template-for-strength-training-center-
